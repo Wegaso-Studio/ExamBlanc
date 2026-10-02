@@ -104,7 +104,7 @@ les sorciers et les grumots, après les créatures ont aidé
 - La fougue -_-
 
 36. Que nous apprend l’histoire de cette famille sur les différentes manières de servir Myrradiel ?
-Qu'il faut un peu de tout pour faire un monde
+- Qu'il faut un peu de tout pour faire un monde
 
 37. Quelle grande leçon l’union des peuples durant la Guerre a-t-elle laissée aux générations suivantes ?
 - Que il faut s'unir pour etre plus fort
