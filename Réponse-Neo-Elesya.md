@@ -14,7 +14,7 @@
 - Parcequ'elle acceuilles des créatures differentes qui ont chacuns leur manière de vivre et leur traditions.
 
 6. Quels sont les cinq principaux peuples de Myrradiel ?
-- 
+- Lycan, Ombrailes, Vampires, Sorciers, Yako, Elfes
 
 7. Quelle caractéristique importante distingue les Sorciers ?
 - Ils ont la possibilité de lancer des sortilèges
